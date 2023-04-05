@@ -1,2 +1,3 @@
-# termed
-Detective Voke#3429
+# termed - Detective Voke#3429
+
+Discord really be hating, 4 days having each accounts...
